@@ -32,30 +32,6 @@ I pay close attention to client feedback and aim to turn ideas and references in
 Prices may vary depending on the complexity and requirements of the project.
 
 ---
-
-## 🎵 Selected Works
-
-### Track 01
-
-**Genre:** Electronic
-**Role:** Production / Composition
-
-> Preview coming soon.
-
-### Track 02
-
-**Genre:** —
-**Role:** Production / Composition
-
-> Preview coming soon.
-
-### Track 03
-
-**Genre:** —
-**Role:** Production / Composition
-
-> Preview coming soon.
-
 ---
 
 ## 💼 Available For
